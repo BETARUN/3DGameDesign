@@ -1,2 +1,2 @@
-演示视频仍在网站审核中
-审核完毕后会更新链接
+演示视频链接：
+https://v.youku.com/v_show/id_XNDM2MDUxOTc2OA==.html?spm=a2h3j.8428770.3416059.1
